@@ -7,4 +7,4 @@
 <div id="header" align="center">
 
 
-R[entry](https://rentry.co/roseysin) ‎  ‎  ‎  ‎✦‎  ‎  ‎  ‎  A[ta](https://pancreas.atabook.org/) ‎  ‎  ‎  ‎✦‎  ‎  ‎  ‎S[traw](https://4megz.straw.page)
+R[entry](https://rentry.co/geto-sama) ‎  ‎  ‎  ‎✦‎  ‎  ‎  ‎  A[ta](https://pancreas.atabook.org/) ‎  ‎  ‎  ‎✦‎  ‎  ‎  ‎S[traw](https://4megz.straw.page)
