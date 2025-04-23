@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=lightgray&label=_⚢_&base=1000)
 
-![nutsonu](https://i.postimg.cc/zfQ4RBv2/Untitled15-20250423153107.png)
+![nutsonu](https://i.postimg.cc/XYLr3MqY/Untitled15-20250423154141.png)
 
 <div id="header" align="center">
 
