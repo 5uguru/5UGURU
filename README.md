@@ -6,4 +6,4 @@
 <div id="header" align="center">
 
 
-# [Memes](https://github.com/destroy-boys)  ⠀⠀‎  ‎  ‎  [Rentry](https://rentry.co/megz)‎  ⠀⠀‎  ‎  ‎  ‎[Straw](https://4megz.straw.page) ‎  
+## [Memes](https://github.com/destroy-boys)  ⠀⠀‎  ‎  ‎  [Rentry](https://rentry.co/megz)‎  ⠀⠀‎  ‎  ‎  ‎[Straw](https://4megz.straw.page) ‎  
