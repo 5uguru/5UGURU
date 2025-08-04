@@ -3,7 +3,11 @@
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=lightgray&label=_fans_&base=1000)
 <div id="header" align="center">
 
-<img src=https://i.postimg.cc/SxkFNm0d/Untitled50-20250723160127.png width="290" height="325">
+<div id="header" align="center">
+
+ac⠀:⠀@thisoneeisliu on tt
+
+<img src=https://i.postimg.cc/WzL0McvB/Untitled62-20250729231823.png width="290" height="200">⠀⠀⠀⠀
 
 #### [Memes](https://github.com/destroy-boys)  ⠀⠀‎  ‎  ‎  [Rentry](https://rentry.co/megz)‎  ⠀⠀‎  ‎  ‎  ‎[Straw](https://4megz.straw.page) ‎  
 
