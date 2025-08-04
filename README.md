@@ -1,4 +1,4 @@
-⠀<div id="header" align="center">
+<div id="header" align="center">
 
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=lightgray&label=_fans_&base=1000)
 <div id="header" align="center">
