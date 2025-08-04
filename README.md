@@ -9,7 +9,7 @@ ac⠀:⠀@thisoneeisliu on tt
 
 <img src=https://i.postimg.cc/WbnTLmhr/Untitled62-20250729231823.png width="290" height="220">
 
-Mw⠀[﹫nik](https://github.com/moonloverr)
+Mw⠀[nik](https://github.com/moonloverr)
 
 #### [Memes](https://github.com/destroy-boys)  ⠀⠀‎  ‎  ‎  [Rentry](https://rentry.co/megz)‎  ⠀⠀‎  ‎  ‎  ‎[Straw](https://4megz.straw.page) ‎  
 
