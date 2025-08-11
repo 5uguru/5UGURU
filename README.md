@@ -3,6 +3,8 @@
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=lightgray&label=_fans_&base=1000)
 <div id="header" align="center">
 
+[CALLOUT ON PROSHIPPERS!!!!](HTTPS://RENTRY.CO/BLEARS)
+
 <div id="header" align="center">
 
 ac⠀:⠀@thisoneeisliu on tt
