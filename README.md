@@ -15,5 +15,5 @@ ac⠀:⠀@thisoneeisliu on tt
 
 [<img src=https://i.postimg.cc/FshmqH36/Untitled62-20250809214529.png width="290" height="220">](https://github.com/seraphoria)
 
-#### [memes](https://github.com/destroy-boys)  ⠀⠀‎  ‎  ‎  [rentry](https://rentry.co/megz)‎  ⠀⠀‎  ‎  ‎  ‎[straw](https://4megz.straw.page) ‎  
+#### [memes](https://github.com/destroy-boys)  ⠀⠀‎  ‎  ‎  [rentry](https://rentry.co/tjkn)‎  ⠀⠀‎  ‎  ‎  ‎[straw](https://4megz.straw.page) ‎  
 
