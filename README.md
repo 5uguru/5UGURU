@@ -3,6 +3,8 @@
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=lightgray&label=_fans_&base=1000)
 <div id="header" align="center">
 
+"⠀나는 결코 당신의 여자가 될 수 없을 거야⠀.⠀♥︎⠀"
+
 <div id="header" align="center">
 
 #### [memes](https://github.com/destroy-boys)  ⠀⠀‎  ‎  ‎  [rentry](https://rentry.co/tjkn)‎  ⠀⠀‎  ‎  ‎  ‎[straw](https://4megz.straw.page)  ⠀⠀‎  ‎  ‎  [atabook](https://lufeng.atabook.org/)
