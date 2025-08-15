@@ -7,9 +7,9 @@
 
 <div id="header" align="center">
 
-#### [memes](https://github.com/destroy-boys)  ⠀⠀‎  ‎  ‎  [rentry](https://rentry.co/tjkn)‎  ⠀⠀‎  ‎  ‎  ‎[straw](https://4megz.straw.page)  ⠀⠀‎  ‎  ‎  [atabook](https://lufeng.atabook.org/)
+#### [memes](https://github.com/destroy-boys)  ⠀⠀‎  ‎  ‎  [rentry](https://rentry.co/tjkn)‎  ⠀⠀‎  ‎  ‎  ‎[straw](https://4megz.straw.page)
 
 <img src=https://i.postimg.cc/RV0FmtVr/Untitled84-20250815003443.png width="320" height="320">
 
-#### [award](https://github.com/pt-awards)  ⠀⠀‎  ‎  ‎  ‎[match](https://rentry.co/nwjns)  ⠀⠀‎  ‎  ‎  [squad](https://github.com/polysquad)  ⠀⠀‎  ‎  ‎  [callout](https://rentry.co/blears)
+#### [award](https://github.com/pt-awards)  ⠀⠀‎  ‎  ‎  ‎[match](https://rentry.co/nwjns)  ⠀⠀‎  ‎  ‎  [squad](https://github.com/polysquad)
 
