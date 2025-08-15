@@ -3,9 +3,9 @@
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=lightgray&label=_fans_&base=1000)
 <div id="header" align="center">
 
-"⠀When are you gonna quit making yourself feel
+when are you gonna quit making yourself feel
 
-better by spouting all this bullshit bleeugh⠀"
+better by spouting all this bowlshit bleugh!
 
 <div id="header" align="center">
 
