@@ -3,7 +3,9 @@
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=lightgray&label=_fans_&base=1000)
 <div id="header" align="center">
 
-"⠀나는 결코 당신의 여자가 될 수 없을 거야⠀.⠀♥︎⠀"
+"⠀When are you gonna quit making yourself feel
+
+better by spouting all this bullshit⠀"
 
 <div id="header" align="center">
 
