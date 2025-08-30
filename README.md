@@ -5,8 +5,6 @@
 
 (—_—) ⠀⠀⠀(ᵕ—ᴗ—) ⠀⠀⠀(ㅜ_ㅜ) ⠀⠀⠀(⇀‸↼‶)
 
-^ my honest reactions
-
 <div id="header" align="center">
   
 #### [memes](https://github.com/destroy-boys)  ⠀⠀‎  ‎  ‎  [rentry](https://rentry.co/tjkn)‎  ⠀⠀‎  ‎  ‎  ‎[straw](https://4megz.straw.page)
