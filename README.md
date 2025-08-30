@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=000000&label=_bmf_&base=1000)
 <div id="header" align="center">
 
-(—_—) ⠀⠀⠀(ᵕ—ᴗ—) ⠀⠀⠀(ㅜ_ㅜ) ⠀⠀⠀(⇀‸↼‶)
+(—_—) ⠀⠀⠀⠀(ᵕ—ᴗ—) ⠀⠀⠀⠀(ㅜ_ㅜ) ⠀⠀⠀⠀(⇀‸↼‶)
 
 <div id="header" align="center">
   
