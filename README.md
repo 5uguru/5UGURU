@@ -13,4 +13,4 @@
 
 #### [rehab](https://github.com/pt-awards)  ⠀⠀‎  ‎  ‎  ‎[match](https://rentry.co/nwjns)  ⠀⠀‎  ‎  ‎  [squad](https://github.com/polysquad)
 
-#### click [THIS](https://bato.si/u/2604966-shirayukis/info) n [this](https://rentry.co/leiri) for matching interests pls ⠀🦭
+#### click⠀[this](https://bato.si/u/2604966-shirayukis/info)⠀&⠀[this](https://rentry.co/leiri)⠀for matching interests pls ⠀🦭
