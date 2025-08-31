@@ -9,7 +9,7 @@
   
 #### [memes](https://github.com/destroy-boys)  ⠀⠀‎  ‎  ‎  [rentry](https://rentry.co/tjkn)‎  ⠀⠀‎  ‎  ‎  ‎[straw](https://4megz.straw.page)
 
-<img src=https://i.postimg.cc/RV0FmtVr/Untitled84-20250815003443.png width="320" height="320">
+<img src=https://i.postimg.cc/pVGFJZwB/Untitled97-20250831225537.jpg width="320" height="500">
 
 #### [rehab](https://github.com/pt-awards)  ⠀⠀‎  ‎  ‎  ‎[match](https://rentry.co/nwjns)  ⠀⠀‎  ‎  ‎  [squad](https://github.com/polysquad)
 
