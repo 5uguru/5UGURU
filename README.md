@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=000000&label=_bmf_&base=1000)
 <div id="header" align="center">
 
-( —_—) ⠀⠀⠀ ⠀(ᵕ—ᴗ—) ⠀⠀ ⠀⠀(ㅜ_ㅜ) ⠀⠀⠀⠀ (⇀‸↼‶)
+#### 점점 더 두근대는 맘 전부 다 줄게 Take my heart [@luc](https://github.com/iarchmybacula)
 
 <div id="header" align="center">
   
