@@ -1,3 +1,6 @@
+<div id="text" align="center">
+⠀⠀⠀
+
 <div id="header" align="center">
 
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=000000&label=_Ptian_&base=1000)
@@ -12,4 +15,5 @@
 
 #### [memes](https://github.com/destroy-boys) ⠀⠀⠀⠀⠀[rehab](https://github.com/pt-awards) ⠀⠀⠀⠀⠀[match](https://rentry.co/nwjns) ⠀⠀⠀⠀⠀[squad](https://github.com/polysquad)
 
+⠀⠀⠀⠀⠀⠀
 
