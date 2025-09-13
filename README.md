@@ -15,7 +15,7 @@
 
 <img src=https://i.postimg.cc/pVGFJZwB/Untitled97-20250831225537.jpg width="320" height="500">
 
-#### xtra⠀ ⠀ ⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀⠀[rehab](https://github.com/pt-awards) ⠀⠀[memes](https://github.com/destroy-boys) ⠀⠀[squad](https://github.com/polysquad)
+#### xtra⠀ ⠀ ⠀⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀[rehab](https://github.com/pt-awards) ⠀⠀[memes](https://github.com/destroy-boys) ⠀⠀[squad](https://github.com/polysquad)
 
 ⠀⠀⠀⠀⠀⠀
 
