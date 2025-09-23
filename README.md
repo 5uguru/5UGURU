@@ -7,7 +7,7 @@
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=000000&label=_Ptian_&base=1000)
 <div id="text" align="center">
 
-#### 점점 더 두근대는 맘 전부 다 줄게 Take ma heart! ⠀ [@luc](https://github.com/iarchmybacula)  
+#### 점점 더 두근대는 맘 전부 다 줄게 Take ma heart! ⠀ [@luc](https://github.com/5atoru)  
 #### ᗢ⠀ click⠀[this](https://bato.si/u/2604966-otakurot/info)⠀&⠀[this](https://rentry.co/leiri)⠀for matching interests guys
 #### [rentry](https://rentry.co/tjkn) ⠀⠀[straw](https://4megz.straw.page) ⠀⠀[match](https://rentry.co/nwjns)   ⠀⠀⠀⠀ ⠀ ⠀  ⠀⠀⠀⠀  ⠀⠀ info
 
