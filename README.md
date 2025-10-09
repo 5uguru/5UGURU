@@ -7,11 +7,11 @@
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=000000&label=_Ptian_&base=1000)
 <div id="text" align="center">
 
-#### 짙은⠀붉은색⠀사랑을⠀얼굴에⠀새기고⠀⠀⠀그 누가 뭐라 해도 Fall in love‪‪⠀⠀♥︎⠀‬‪‪⠀[@LUCIEN](https://github.com/5atoru)⠀ 
+#### 짙은⠀붉은색⠀사랑을⠀얼굴에⠀새기고⠀⠀⠀그 누가 뭐라 해도 Fall in love‪‪⠀ ⠀♥︎⠀ ‬‪‪⠀[@LUCIEN](https://github.com/5atoru)⠀ 
 
 <div id="text" align="center">
 
 <img src=https://i.postimg.cc/FKR3h3QN/Untitled131-20251009172430.png width="50" height="50"> ⠀⠀⠀⠀⠀[<img src=https://i.postimg.cc/kgV0YZ0X/Untitled128-20251002220137.png width="200" height="150">](https://4megz.straw.page/) ⠀[<img src=https://i.postimg.cc/fWB1zDs1/Untitled128-20251002220057.png width="200" height="150">](https://lufeng.atabook.org/)
 [<img src=https://i.postimg.cc/85ZnwmPw/Untitled126.png width="525" height="270">](https://rentry.co/cuntier)
-#### [<img src=https://i.postimg.cc/cCL5GTcR/Untitled128-20251009180319.png width="70" height="50">](https://rentry.co/nwjns)⠀⠀[<img src=https://i.postimg.cc/sXN51crh/Untitled128-20251009180138.png width="120" height="50">](https://listography.com/getos)⠀⠀[<img src=https://i.postimg.cc/DZTw64P6/Untitled128-20251009180234.png width="81" height="50">](https://github.com/pt-awards)⠀⠀[<img src=https://i.postimg.cc/LXX0rNDt/Untitled128-20251009180207.png width="80" height="50">](https://github.com/destroy-boys)⠀⠀[<img src=https://i.postimg.cc/x8Npd8Wz/Untitled128-20251009180357.png width="80" height="50">](https://github.com/polysquad)
+#### [<img src=https://i.postimg.cc/cCL5GTcR/Untitled128-20251009180319.png width="75" height="50">](https://rentry.co/nwjns)⠀⠀[<img src=https://i.postimg.cc/sXN51crh/Untitled128-20251009180138.png width="120" height="50">](https://listography.com/getos)⠀⠀[<img src=https://i.postimg.cc/DZTw64P6/Untitled128-20251009180234.png width="86" height="50">](https://github.com/pt-awards)⠀⠀[<img src=https://i.postimg.cc/LXX0rNDt/Untitled128-20251009180207.png width="80" height="50">](https://github.com/destroy-boys)⠀⠀[<img src=https://i.postimg.cc/x8Npd8Wz/Untitled128-20251009180357.png width="80" height="50">](https://github.com/polysquad)
 
