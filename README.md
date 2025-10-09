@@ -7,7 +7,7 @@
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=000000&label=_Ptian_&base=1000)
 <div id="text" align="center">
 
-#### 짙은⠀붉은색⠀사랑을⠀얼굴에⠀새기고⠀⠀⠀그 누가 뭐라 해도 Fall in love‪‪⠀ ⠀♥︎⠀ ‬‪‪⠀[@LUCIEN](https://github.com/5atoru)⠀ 
+#### 짙은⠀붉은색⠀사랑을⠀얼굴에⠀새기고⠀⠀⠀그 누가 뭐라 해도 Fall in love‪‪ ⠀ ⠀♥︎⠀ ‬‪‪⠀ [@LUCIEN](https://github.com/5atoru)⠀ 
 
 <div id="text" align="center">
 
