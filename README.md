@@ -17,8 +17,6 @@
 
 #### < [nikk](https://github.com/moonloverr)⠀[mina](https://github.com/seraphoria) 3 ⠀[emi](https://github.com/blacksorroww) ⠀[isaac](https://github.com/catisaa) ⠀[tama](https://github.com/tdlosk) ⠀[vin](https://github.com/curse-manipulation)⠀ [mei](https://github.com/siIksong)⠀ [andre](https://github.com/vivibasu)⠀ [shiyu](https://github.com/toemuncher3000)⠀ [dex](https://github.com/cold-blood)⠀ [sol](https://github.com/surgeon-ofdeath)⠀ [ley](https://github.com/yuslon)⠀ [xen](https://github.com/bandaged-wounds)
 
-<img src=https://i.postimg.cc/zGBwYjcw/Untitled136-20251009200123.png width="525" height="20">
-
 #### [keo](https://github.com/starsour)⠀ [nicole](https://github.com/10shadows)⠀ [ayase](https://github.com/paperings)⠀ [zoe](https://github.com/sunloverr) ⠀[anto](https://github.com/k-ant0)⠀ [zeph](https://github.com/c0gnition)⠀ [jushi](https://github.com/gajushi-tsm)
 
 <img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="150" height="250">
