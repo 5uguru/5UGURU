@@ -15,8 +15,8 @@
 
 [<img src=https://i.postimg.cc/DZTw64P6/Untitled128-20251009180234.png width="122" height="80">](https://github.com/pt-awards)⠀ ⠀⠀⠀ ⠀⠀⠀⠀[<img src=https://i.postimg.cc/LXX0rNDt/Untitled128-20251009180207.png width="115" height="80">](https://github.com/destroy-boys)⠀⠀⠀⠀ ⠀⠀⠀ ⠀[<img src=https://i.postimg.cc/x8Npd8Wz/Untitled128-20251009180357.png width="110" height="80">](https://github.com/polysquad)
 
-#### [NIK](https://github.com/moonloverr)⠀ [MINA](https://github.com/seraphoria) ⠀[EMI](https://github.com/blacksorroww) ⠀[ISAAC](https://github.com/catisaa) ⠀[TAMA](https://github.com/tdlosk) ⠀[VIN](https://github.com/curse-manipulation)⠀ [MEI](https://github.com/siIksong)⠀ [ANDRE](https://github.com/vivibasu)⠀ [SHIYU](https://github.com/toemuncher3000)⠀ [DEX](https://github.com/cold-blood)⠀ [SOL](https://github.com/surgeon-ofdeath)⠀ [LEY](https://github.com/yuslon)⠀ [XEN](https://github.com/bandaged-wounds)
+#### ⌯⠀ [NIK](https://github.com/moonloverr)⠀ [MINA](https://github.com/seraphoria) ⠀[EMI](https://github.com/blacksorroww) ⠀[ISAAC](https://github.com/catisaa) ⠀[TAMA](https://github.com/tdlosk) ⠀[VIN](https://github.com/curse-manipulation)⠀ [MEI](https://github.com/siIksong)⠀ [ANDRE](https://github.com/vivibasu)⠀ [SHIYU](https://github.com/toemuncher3000)⠀ [DEX](https://github.com/cold-blood)⠀ [SOL](https://github.com/surgeon-ofdeath)⠀ [LEY](https://github.com/yuslon)
 
-#### [KEO](https://github.com/starsour)⠀ [NICOLE](https://github.com/10shadows)⠀ [AYASE](https://github.com/paperings)⠀ [ZOE](https://github.com/sunloverr) ⠀[KANTO](https://github.com/k-ant0)⠀ [ZEPH](https://github.com/c0gnition)⠀ [GAJUSHI](https://github.com/gajushi-tsm)
+#### [XEN](https://github.com/bandaged-wounds)⠀ [KEO](https://github.com/starsour)⠀ [NICOLE](https://github.com/10shadows)⠀ [AYASE](https://github.com/paperings)⠀ [ZOE](https://github.com/sunloverr) ⠀[KANTO](https://github.com/k-ant0)⠀ [ZEPH](https://github.com/c0gnition)⠀ [GAJUSHI](https://github.com/gajushi-tsm)
 
 <img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="150" height="250">
