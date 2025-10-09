@@ -3,7 +3,7 @@
 
 <img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="150" height="250"> 
 
-![](https://komarev.com/ghpvc/?username=destroy-boys&style=flat-square&color=E0CA70&label=_ONIISANS_&base=1000)
+![](https://komarev.com/ghpvc/?username=destroy-boys&style=flat-square&color=C4211B&label=_ONIISANS_&base=1000)
 <div id="text" align="center">
 
 #### 짙은⠀붉은색⠀사랑을⠀얼굴에⠀새기고⠀⠀⠀그 누가 뭐라 해도 Fall in love‪‪ ⠀ ⠀♥︎⠀ ‬‪‪⠀ [@LUCIEN](https://github.com/5atoru)⠀
