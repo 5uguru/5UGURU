@@ -11,7 +11,7 @@
 
 <div id="text" align="center">
 
-<img src=https://i.postimg.cc/kgV0YZ0X/Untitled128-20251002220137.png width="200" height="150"> ⠀⠀⠀⠀<img src=https://i.postimg.cc/fWB1zDs1/Untitled128-20251002220057.png width="200" height="150">
+<img src=https://i.postimg.cc/fL8nn4Dz/Untitled129-20251009171115.png width="50" height="50"> ⠀⠀⠀<img src=https://i.postimg.cc/kgV0YZ0X/Untitled128-20251002220137.png width="200" height="150"> ⠀⠀⠀<img src=https://i.postimg.cc/fWB1zDs1/Untitled128-20251002220057.png width="200" height="150">
 [<img src=https://i.postimg.cc/85ZnwmPw/Untitled126.png width="530" height="270">](https://rentry.co/cuntier)
 #### [MATCH](https://rentry.co/nwjns) ⠀⠀⠀⠀⠀⠀[INTERESTS](https://listography.com/getos) ⠀⠀⠀⠀⠀⠀[AWARD](https://github.com/pt-awards) ⠀⠀⠀⠀⠀⠀[4MEMES](https://github.com/destroy-boys) ⠀⠀⠀⠀⠀⠀[SQUAD](https://github.com/polysquad)
 
