@@ -15,4 +15,5 @@
 [<img src=https://i.postimg.cc/85ZnwmPw/Untitled126.png width="525" height="270">](https://rentry.co/cuntier)
 #### [<img src=https://i.postimg.cc/DZTw64P6/Untitled128-20251009180234.png width="122" height="80">](https://github.com/pt-awards)⠀ ⠀⠀ ⠀⠀⠀⠀[<img src=https://i.postimg.cc/LXX0rNDt/Untitled128-20251009180207.png width="115" height="80">](https://github.com/destroy-boys)⠀⠀⠀⠀ ⠀⠀ ⠀[<img src=https://i.postimg.cc/x8Npd8Wz/Untitled128-20251009180357.png width="110" height="80">](https://github.com/polysquad)
 
-#### <⠀[nik](https://github.com/moonloverr) [mina](https://github.com/seraphoria)⠀3 @blacksorroww @catisaa @tdlosk @curse-manipulation @siIksong @raddogs @c0gnition @k-ant0 @bandaged-wounds @starsour @Sunloverr @YUSlON @zollaw @vivibasu @coId-bIood @10shadows @paperings @gajushi-tsm @toemuncher3000
+### <⠀[nik](https://github.com/moonloverr)⠀[mina](https://github.com/seraphoria)⠀3⠀⠀[emi](https://github.com/blacksorroww)⠀[isaac](https://github.com/catisaa)⠀[tama](https://github.com/tdlosk)⠀[vin](https://github.com/curse-manipulation)⠀[mei](https://github.com/siIksong)
+### @raddogs @c0gnition @k-ant0 @bandaged-wounds @starsour @Sunloverr @YUSlON @zollaw @vivibasu @coId-bIood @10shadows @paperings @gajushi-tsm @toemuncher3000
