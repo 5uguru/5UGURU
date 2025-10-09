@@ -1,7 +1,7 @@
 
 <div id="text" align="center">
 
-<img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="50" height="250"> 
+<img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="150" height="250"> 
 
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=000000&label=_Ptian_&base=1000)
 <div id="text" align="center">
@@ -19,4 +19,4 @@
 
 #### [keo](https://github.com/starsour)⠀ [nicole](https://github.com/10shadows)⠀ [ayase](https://github.com/paperings)⠀ [zoe](https://github.com/sunloverr) ⠀[anto](https://github.com/k-ant0)⠀ [zeph](https://github.com/c0gnition)⠀ [jushi](https://github.com/gajushi-tsm)
 
-<img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="50" height="250">
+<img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="150" height="250">
