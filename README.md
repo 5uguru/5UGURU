@@ -13,5 +13,5 @@
 
 <img src=https://i.postimg.cc/FKR3h3QN/Untitled131-20251009172430.png width="50" height="50"> ⠀⠀⠀⠀⠀[<img src=https://i.postimg.cc/kgV0YZ0X/Untitled128-20251002220137.png width="200" height="150">](https://4megz.straw.page/) ⠀[<img src=https://i.postimg.cc/fWB1zDs1/Untitled128-20251002220057.png width="200" height="150">](https://lufeng.atabook.org/)
 [<img src=https://i.postimg.cc/85ZnwmPw/Untitled126.png width="525" height="270">](https://rentry.co/cuntier)
-#### [<img src=https://i.postimg.cc/cCL5GTcR/Untitled128-20251009180319.png width="80" height="60">](https://rentry.co/nwjns) ⠀⠀⠀⠀[<img src=https://i.postimg.cc/sXN51crh/Untitled128-20251009180138.png width="130" height="60">](https://listography.com/getos) ⠀⠀⠀⠀[AWARD](https://github.com/pt-awards) ⠀⠀⠀⠀[4MEMES](https://github.com/destroy-boys) ⠀⠀⠀⠀[SQUAD](https://github.com/polysquad)
+#### [<img src=https://i.postimg.cc/cCL5GTcR/Untitled128-20251009180319.png width="80" height="60">](https://rentry.co/nwjns) ⠀⠀⠀⠀[<img src=https://i.postimg.cc/sXN51crh/Untitled128-20251009180138.png width="130" height="60">](https://listography.com/getos) ⠀⠀⠀⠀[<img src=https://i.postimg.cc/DZTw64P6/Untitled128-20251009180234.png width="91" height="60">](https://github.com/pt-awards) ⠀⠀⠀⠀[4MEMES](https://github.com/destroy-boys) ⠀⠀⠀⠀[SQUAD](https://github.com/polysquad)
 
