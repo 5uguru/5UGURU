@@ -1,7 +1,7 @@
 
 <div id="text" align="center">
 
-<img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="300" height="250"> 
+<img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="150" height="250"> 
 
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=flat-square&color=C4211B&label=_ONIISANS_&base=1000)
 <div id="text" align="center">
@@ -21,4 +21,4 @@
 
 #### [GAJUSHI](https://github.com/gajushi-tsm)⠀[GABE](https://github.com/pwlutopawws)
 
-<img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="300" height="250">
+<img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="150" height="250">
