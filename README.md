@@ -17,8 +17,8 @@
 
 #### <img src=https://i.postimg.cc/prnGz57J/Untitled128-20251009223408.png width="50" height="25"> ⠀ [NIK](https://github.com/moonloverr)⠀[MINA](https://github.com/seraphoria)⠀[EMI](https://github.com/blacksorroww)⠀[ISAAC](https://github.com/catisaa)⠀[TAMA](https://github.com/tdlosk)⠀[VIN](https://github.com/curse-manipulation)⠀[MEI](https://github.com/siIksong)⠀[DEX](https://github.com/cold-blood)⠀[SHIYU](https://github.com/toemuncher3000)⠀[NOX](https://github.com/transadori)⠀[SOL](https://github.com/surgeon-ofdeath)⠀[LUC](https://github.com/toewrestlergod3000)
 
-#### [DARWI](https://github.com/B1-SP1DER) ⠀[ANDRE](https://github.com/vivibasu) ⠀[LEY](https://github.com/yuslon) ⠀[XEN](https://github.com/bandaged-wounds)⠀ [KEO](https://github.com/starsour)⠀[NICOLE](https://github.com/10shadows)⠀[AYASE](https://github.com/paperings) ⠀[ZOE](https://github.com/sunloverr) ⠀[KANTO](https://github.com/k-ant0)⠀ [STAR](https://github.com/STARPKMN)⠀ [ZEPH](https://github.com/c0gnition)
+#### [DARWI](https://github.com/B1-SP1DER) ⠀[ANDRE](https://github.com/vivibasu) ⠀[LEY](https://github.com/yuslon) ⠀[XEN](https://github.com/bandaged-wounds)⠀ [KEO](https://github.com/starsour)⠀[JUSHI](https://github.com/GAJUSHI-TSM)⠀[AYASE](https://github.com/paperings) ⠀[ZOE](https://github.com/sunloverr) ⠀[KANTO](https://github.com/k-ant0)⠀ [STAR](https://github.com/STARPKMN)⠀ [ZEPH](https://github.com/c0gnition)
 
-#### [GAJUSHI](https://github.com/gajushi-tsm)⠀[GABE](https://github.com/pwlutopawws)
+#### [GABE](https://github.com/pwlutopawws)
 
 <img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="50" height="250">
