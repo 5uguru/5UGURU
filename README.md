@@ -20,5 +20,4 @@
 #### [DAR](https://github.com/B1-SP1DER) ⠀[XEN](https://github.com/vivibasu) ⠀[LEY](https://github.com/yuslon) ⠀[XEN](https://github.com/bandaged-wounds)⠀ [KEO](https://github.com/starsour)⠀[JUSHI](https://github.com/GAJUSHI-TSM)⠀[AYASE](https://github.com/paperings) ⠀[ZOE](https://github.com/sunloverr) ⠀[ANTO](https://github.com/k-ant0)⠀ [STAR](https://github.com/STARPKMN)⠀ [ZEPH](https://github.com/c0gnition)⠀ [GABE](https://github.com/pwlutopawws)
 
 <img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="50" height="250">
-
-<img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31lkl7e2qeejghf7karogwjr7lpy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false" width="570" height="570">
+<img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31lkl7e2qeejghf7karogwjr7lpy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false" width="565" height="565">
