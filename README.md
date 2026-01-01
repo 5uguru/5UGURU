@@ -1,4 +1,3 @@
-
 <div id="text" align="center">
 <img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="50" height="250"> 
 
@@ -20,6 +19,5 @@
 ### ${\color{#4C6E54}𝐈 \\space 𝐀𝐃𝐎𝐑𝐄}$⠀ [LUCIEN](https://github.com/5atoru)⠀ ${\color{#814D3F}𖹭}$ ⠀ ${\color{#B0B58D}(ᯫ૦⩊૦ᯫ)}$⠀ ${\color{#4C6E54}친하다}$⠀⠀[NIK](https://github.com/MOONLOVERR)⠀ [MINA](https://github.com/SERAPHORIA)⠀ [ISAAC](https://github.com/CATISAA)
 
 ### ♫ ⠀⠀ [SOL](https://github.com/INJECTIONSHOT) ⠀ [SHIYU](https://github.com/SKY-RUS) ⠀ [LUC](https://github.com/toewrestlergod3000) ⠀ [TAMA](https://github.com/TDLOSK) ⠀ ⠀ ${\color{#B0B58D}𝐒𝐂𝐑𝐔𝐍𝐊𝐋𝐄𝐒}$ ⠀ ⠀ [AWARD](https://github.com/pt-awards)
-
 <img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="50" height="250">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31lkl7e2qeejghf7karogwjr7lpy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false" width="560" height="565">
