@@ -17,4 +17,4 @@
 [<img src=https://i.postimg.cc/7Y78Zt5C/Untitled229-20260101180956.png width="110" height="100">](https://rentry.co/megz) ⠀⠀ ⠀⠀⠀ [<img src=https://i.postimg.cc/k4DL3f0h/Untitled229-20260101181045.png width="160" height="100">](https://4megz.straw.page/) ⠀⠀⠀ ⠀⠀ [<img src=https://i.postimg.cc/521GN4cr/Untitled229-20260101181126.png width="135" height="100">](https://lufeng.atabook.org/)
 
 ### ♫｡ ⠀⠀ [SOL](https://github.com/INJECTIONSHOT) ⠀ [SHIYU](https://github.com/SKY-RUS) ⠀ [LUC](https://github.com/toewrestlergod3000) ⠀ [TAMA](https://github.com/TDLOSK) ⠀ ⠀ ${\color{#4c6e54}𝐒𝐂𝐑𝐔𝐍𝐊𝐋𝐄𝐒}$ ⠀ ⠀ [AWARD](https://github.com/pt-awards)
-### ${\color{#814D3F}친구}$ ⠀⠀ [VIN](https://github.com/CURSE-MANIPULATION) ⠀ 
+### ${\color{#814D3F}친구}$ ⠀⠀ [VIN](https://github.com/CURSE-MANIPULATION) ⠀ [YUWI](https://github.com/4RTISTIC) ⠀ [LEY](https://github.com/YUSIONS) ⠀ [ANDRE](https://github.com/VIVIBASU)
