@@ -9,7 +9,7 @@
 
 [<img src=https://i.postimg.cc/Hk43kRbs/Untitled224-20260101195217.png width="80" height="100">](https://rentry.co/wowie) ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ <img src=https://i.postimg.cc/cHjBzSGh/Untitled225-20260101180553.png width="70" height="40"> ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀ <img src=https://i.postimg.cc/XNRgc4gh/Untitled224-20260101195318.png width="100" height="100">
 
-### [SQUAD](https://github.com/POLYSQUAD) ⠀⠀⠀ ${\color{#B0B58D}𝐌𝐀𝐓𝐂𝐇𝐈𝐍𝐆 \\space 𝐑𝐄𝐍𝐓𝐑𝐘}$ ⠀ [MINA](HTTPS://RENTRY.CO/NWJNS) ⠀ [NIK](HTTPS://RENTRY.CO/RV) ⠀ [LUC](HTTPS://RENTRY.CO/MANHWAS) ⠀⠀ ${\color{#B0B58D}⎋}$
+### [SQUAD](https://github.com/POLYSQUAD) ⠀ ⠀ ${\color{#B0B58D}𝐌𝐀𝐓𝐂𝐇𝐈𝐍𝐆 \\space 𝐑𝐄𝐍𝐓𝐑𝐘}$ ⠀ [MINA](HTTPS://RENTRY.CO/NWJNS) ⠀ [NIK](HTTPS://RENTRY.CO/RV) ⠀ [LUCIEN](HTTPS://RENTRY.CO/MANHWAS) ⠀⠀ ${\color{#B0B58D}⎋}$
 
 <div id="text" align="center">
 
