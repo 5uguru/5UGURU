@@ -8,7 +8,7 @@
 
 <div id="text" align="center">
 
-<img src=https://i.postimg.cc/G2SzFRSx/Untitled224-20260101180421.png width="90" height="90"> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ <img src=https://i.postimg.cc/501q803K/Untitled225-20260101180553.png width="120" height="80"> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ <img src=https://i.postimg.cc/XYs0RGZ3/Untitled224-20260101175814.png width="110" height="110">
+<img src=https://i.postimg.cc/G2SzFRSx/Untitled224-20260101180421.png width="90" height="90"> ⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ <img src=https://i.postimg.cc/501q803K/Untitled225-20260101180553.png width="120" height="80"> ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀ <img src=https://i.postimg.cc/XYs0RGZ3/Untitled224-20260101175814.png width="110" height="110">
 
 <img src=https://i.postimg.cc/7Y78Zt5C/Untitled229-20260101180956.png width="110" height="100"> ⠀⠀ ⠀⠀⠀ <img src=https://i.postimg.cc/k4DL3f0h/Untitled229-20260101181045.png width="160" height="100"> ⠀⠀⠀ ⠀⠀ <img src=https://i.postimg.cc/521GN4cr/Untitled229-20260101181126.png width="135" height="100">
 
