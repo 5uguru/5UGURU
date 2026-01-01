@@ -9,11 +9,13 @@
 
 [<img src=https://i.postimg.cc/Hk43kRbs/Untitled224-20260101195217.png width="80" height="100">](https://rentry.co/wowie) ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ <img src=https://i.postimg.cc/cHjBzSGh/Untitled225-20260101180553.png width="70" height="40"> ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀ <img src=https://i.postimg.cc/XNRgc4gh/Untitled224-20260101195318.png width="100" height="100">
 
+### MATCHING⠀ RENTRY ⠀W ⠀⠀ [MINA](HTTPS://RENTRY.CO/NWJNS) ⠀ [NIK](HTTPS://RENTRY.CO/RV) ⠀ [LUC](HTTPS://RENTRY.CO/MANHWAS)
+
 <div id="text" align="center">
 
 [<img src=https://i.postimg.cc/L6Pv1rBK/9dca663d31f9ea2c17fd1477d9d439ea.jpg width="525" height="270">](https://rentry.co/megz)
 
-[<img src=https://i.postimg.cc/7Y78Zt5C/Untitled229-20260101180956.png width="110" height="100">](https://rentry.co/megz) ⠀⠀ ⠀⠀⠀ <img src=https://i.postimg.cc/k4DL3f0h/Untitled229-20260101181045.png width="160" height="100"> ⠀⠀⠀ ⠀⠀ <img src=https://i.postimg.cc/521GN4cr/Untitled229-20260101181126.png width="135" height="100">
+[<img src=https://i.postimg.cc/7Y78Zt5C/Untitled229-20260101180956.png width="110" height="100">](https://rentry.co/megz) ⠀⠀ ⠀⠀⠀ [<img src=https://i.postimg.cc/k4DL3f0h/Untitled229-20260101181045.png width="160" height="100">](https://4megz.straw.page/) ⠀⠀⠀ ⠀⠀ [<img src=https://i.postimg.cc/521GN4cr/Untitled229-20260101181126.png width="135" height="100">](https://lufeng.atabook.org/)
 
 ### ${\color{#4C6E54}𝐈 \\space 𝐀𝐃𝐎𝐑𝐄}$⠀ [LUCIEN](https://github.com/5atoru)⠀ ${\color{#814D3F}𖹭}$ ⠀ ${\color{#B0B58D}(ᯫ૦⩊૦ᯫ)}$⠀ ${\color{#4C6E54}친하다}$⠀⠀[NIK](https://github.com/MOONLOVERR)⠀ [MINA](https://github.com/SERAPHORIA)⠀ [ISAAC](https://github.com/CATISAA)
 
