@@ -18,4 +18,4 @@
 
 ### ♫｡ ⠀⠀ [SOL](https://github.com/INJECTIONSHOT) ⠀ [SHIYU](https://github.com/SKY-RUS) ⠀ [LUC](https://github.com/toewrestlergod3000) ⠀ [TAMA](https://github.com/TDLOSK) ⠀ ⠀ ${\color{#4c6e54}𝐒𝐂𝐑𝐔𝐍𝐊𝐋𝐄𝐒}$ ⠀ ⠀ [AWARD](https://github.com/pt-awards)
 ### ${\color{#814D3F}친구}$ ⠀⠀⠀[VIN](https://github.com/CURSE-MANIPULATION) ⠀ [YUWI](https://github.com/4RTISTIC) ⠀ [LEY](https://github.com/YUSIONS) ⠀ [ANDRE](https://github.com/VIVIBASU) ⠀ [NANA](https://github.com/LOVE-BULLET) ⠀ [KEO](https://github.com/STARSOUR) ⠀ [MEI](https://github.com/SILKSONG) ⠀ [XEN](https://github.com/BANDAGED-WOUNDS)
-### [AYASE](https://github.com/PAPERINGS) ⠀ [DARWI](https://github.com/B1-SP1DER) ⠀ [JUSHI](https://github.com/GAJUSHI-TSM) ⠀ [EMI](https://github.com/BLACKSORROWW)
+### [AYASE](https://github.com/PAPERINGS) ⠀ [DARWI](https://github.com/B1-SP1DER) ⠀ [JUSHI](https://github.com/GAJUSHI-TSM) ⠀ [EMI](https://github.com/BLACKSORROWW) ⠀ [ANTO](https://github.com/K-ANT0) ⠀ [STAR](https://github.com/STARPKMN) ⠀ [ZEPH](https://github.com/C0GNITION)
