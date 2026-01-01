@@ -8,7 +8,7 @@
 
 <div id="text" align="center">
 
-<img src=https://i.postimg.cc/G2SzFRSx/Untitled224-20260101180421.png width="100" height="100">
+<img src=https://i.postimg.cc/G2SzFRSx/Untitled224-20260101180421.png width="100" height="100"> <img src=https://i.postimg.cc/PrkhYksm/Untitled225-20260101180553.png width="100" height="100"> <img src=https://i.postimg.cc/XYs0RGZ3/Untitled224-20260101175814.png width="100" height="100">
 
 [<img src=https://i.postimg.cc/L6Pv1rBK/9dca663d31f9ea2c17fd1477d9d439ea.jpg width="525" height="270">](https://rentry.co/megz)
 
