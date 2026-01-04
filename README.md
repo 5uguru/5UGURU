@@ -1,6 +1,6 @@
 <div id="text" align="center">
 
-### https://rentry.co/5uguru-callout iscaca goin all out 😿
+### https://rentry.co/5uguru-callout⠀ GOTAK. GOTK 🧟‍♂️
 
 <img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="50" height="250"> 
 
