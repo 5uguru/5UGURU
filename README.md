@@ -1,6 +1,6 @@
 <div id="text" align="center">
 
-### joke ---> [Callout](https://rentry.co/5uguru-callout) ⠀GOTAK. 🧟‍♂️😭 
+### Joke ---> [callout](https://rentry.co/5uguru-callout) ⠀GOTAK. 🧟‍♂️😭 
 
 <img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="50" height="250"> 
 
