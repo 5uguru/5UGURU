@@ -1,6 +1,6 @@
 <div id="text" align="center">
 
-### #REVIVING old jjk area.⠀ <-- scrap that Oop. i tried
+### #REVIVING old jjk area.⠀ <-- scratch that Oop. i tried
 
 <img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="50" height="250"> 
 
