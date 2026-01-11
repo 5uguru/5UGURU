@@ -1,6 +1,6 @@
 <div id="text" align="center">
 
-### Joke ---> [callout](https://rentry.co/5uguru-callout) ⠀GOTAK. 🧟‍♂️😭 
+### #REVIVING old jjk area. Members count: 17⠀😳
 
 <img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="50" height="250"> 
 
