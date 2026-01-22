@@ -15,4 +15,4 @@
 
  <img src=https://i.postimg.cc/bJPSFvLC/Untitled245-20260122180809.png width="20" height="20">⠀Liked by **luc**, **nik**, **mina** and others. ⠀ ⠀ 
 
-**min**⠀ sign my [#ata](https://lufeng.atabook.org/) !⠀[#rentry](https://rentry.co/megz)⠀[#strawpg](https://4megz.straw.page/)
+**min**⠀ sign my [#ata](https://lufeng.atabook.org/) ^^ ⠀ [#rentry](https://rentry.co/megz)⠀[#strawpg](https://4megz.straw.page/)
