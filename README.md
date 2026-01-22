@@ -4,7 +4,7 @@
 
 <div id="text" align="center">
 
-![](https://komarev.com/ghpvc/?username=destroy-boys&style=flat-square&color=43B47C&label=_未来電波基地_&base=1000)
+![](https://komarev.com/ghpvc/?username=destroy-boys&style=flat-square&color=43B47C&label=_YO_&base=1000)
 <div id="text" align="center">
 
 ⠀<img src=https://i.postimg.cc/Fz2s6rQP/Untitled248-20260122190808.png width="255" height="80">⠀
