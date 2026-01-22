@@ -16,4 +16,9 @@
  <img src=https://i.postimg.cc/bJPSFvLC/Untitled245-20260122180809.png width="20" height="20">⠀Liked by **luc**, **nik**, **mina** and others. ⠀ ⠀ 
 
 **min**⠀ sign my [#ata](https://lufeng.atabook.org/) ^^ ⠀ [#rentry](https://rentry.co/megz)⠀[#strawpg](https://4megz.straw.page/)
-[#moots](https://rentry.co/wonrina)⠀ [#interests](https://rentry.co/leiri)
+
+[#moots](https://rentry.co/wonrina)⠀[#interests](https://rentry.co/leiri) ...⠀more⠀⠀⠀  ⠀⠀⠀⠀
+
+<img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="50" height="250">
+<img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31lkl7e2qeejghf7karogwjr7lpy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false" width="360" height="565">
+⠀
