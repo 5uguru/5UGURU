@@ -17,7 +17,7 @@
 
 **min**⠀ sign my [#ata](https://lufeng.atabook.org/) ^^ ⠀ [#rentry](https://rentry.co/megz)⠀[#strawpg](https://4megz.straw.page/)
 
-[#moots](https://rentry.co/wonrina)⠀[#interests](https://rentry.co/leiri) [#ext](https://rentry.co/wowie) ...⠀more   ⠀⠀⠀⠀⠀
+[#moots](https://rentry.co/wonrina)⠀[#interests](https://rentry.co/leiri)⠀[#ext](https://rentry.co/wowie) ...⠀more  ⠀⠀⠀⠀⠀
 
 <img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="50" height="250">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31lkl7e2qeejghf7karogwjr7lpy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false" width="280" height="565">⠀⠀⠀⠀
