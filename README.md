@@ -1,5 +1,7 @@
 <div id="text" align="center">
 
+https://rentry.co/hikiko LMAO
+
 <img src=https://i.postimg.cc/28TpXcnc/Untitled128-20251009193939.png width="50" height="250"> 
 
 <div id="text" align="center">
