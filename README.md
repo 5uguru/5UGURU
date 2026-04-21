@@ -1,6 +1,6 @@
 <div id="text" align="center">
 
-<img src=https://i.postimg.cc/MKZbjjVh/ddcdd07b16aeae52c7d670e6e195f44a.gif width="250" height="150">
+<img src=https://i.postimg.cc/t4MLcb9j/92b3402eacd8a6d44b885e3309fbc7ed.jpg width="240" height="140">
 
 omg ill do ts after exams my github
 
@@ -10,4 +10,4 @@ some⠀reason⠀it⠀was⠀skinny⠀af.
 
 smb call bella hadid- ⠀⠀⠀ hi [moots](https://rentry.co/wonrina)
 
-<img src=https://i.postimg.cc/D0KpKYbq/9a2036fa93de8766e1db0652c75dd10c.jpg width="250" height="190">
+<img src=https://i.postimg.cc/D0KpKYbq/9a2036fa93de8766e1db0652c75dd10c.jpg width="240" height="180">
