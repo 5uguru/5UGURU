@@ -2,16 +2,12 @@
   
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=flat-square&color=C4211B&label=_ONIISANS_&base=1000)
 
-#### [cutieful rentry](https://rentry.co/megz) ⠀⠀⠀ ⠀⠀[interests](https://rentry.co/leiri) 😂
+#### [cutieful rentry](https://rentry.co/megz)  ⠀⠀[interests](https://rentry.co/leiri) 😂 ⠀⠀ hi [moots](https://rentry.co/wonrina)
 
-<img src=https://i.postimg.cc/t4MLcb9j/92b3402eacd8a6d44b885e3309fbc7ed.jpg width="230" height="130">
+<img src=https://i.postimg.cc/0y6rDfT2/68747470733a2f2f66696c65732e636174626f782e6d6f652f787838626a782e6a7067.jpg width="230" height="230">
 
-omg ill do ts after exams my github
+#### Additional information i was not dead ‼️
 
-readme ⠀ content ⠀ stretched ⠀ for
+these degenerates left me to rot :/⠀ i was
 
-some ⠀reason⠀it⠀was⠀skinny ⠀af.
-
-smb call bella hadid- ⠀⠀⠀ hi [moots](https://rentry.co/wonrina)
-
-<img src=https://i.postimg.cc/D0KpKYbq/9a2036fa93de8766e1db0652c75dd10c.jpg width="230" height="170">
+KIDNAPPED 
