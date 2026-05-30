@@ -14,4 +14,4 @@ these degenerates left me to rot :/⠀ i was
 
 KIDNAPPED 
 
-#### [@Constrz](https://github.com/constrz) [@moonlover](https://github.com/moonlover) [@sugarsite](https://github.com/sugarsite)
+#### [@Constrz](https://github.com/constrz)  ⠀[@moonlover](https://github.com/moonlover)⠀  [@sugarsite](https://github.com/sugarsite)
