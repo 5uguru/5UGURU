@@ -12,6 +12,6 @@
 
 these degenerates left me to rot :/⠀ i was
 
-KIDNAPPED 
+KIDNAPPED. ACTUALLY WHO ARE U GUYS
 
 #### [@Constrz](https://github.com/constrz)⠀⠀ [@moonlover](https://github.com/moonlover)⠀⠀ [@sugarsite](https://github.com/sugarsite)
