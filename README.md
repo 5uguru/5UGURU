@@ -6,7 +6,7 @@
 
 #### cari pokemon
 
-<img src=https://i.postimg.cc/hG2wnJ9t/Screenshot-20260602-184421-Pony-Town.jpg width="260" height="240">
+<img src=https://i.postimg.cc/hG2wnJ9t/Screenshot-20260602-184421-Pony-Town.jpg width="260" height="260">
 
 #### Additional information i was not dead ‼️
 
