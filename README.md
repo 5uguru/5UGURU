@@ -4,14 +4,12 @@
 
 #### [cuterentry](https://rentry.co/megz)  ⠀⠀ [interests](https://rentry.co/leiri) 😂 ⠀ ⠀ hi [moots](https://rentry.co/wonrina)
 
-#### cari pokemon
-
 <img src=https://i.postimg.cc/hG2wnJ9t/Screenshot-20260602-184421-Pony-Town.jpg width="260" height="260">
 
-#### Additional information i was not dead ‼️
+Making a little tut on how i do
 
-these degenerates left me to rot :/⠀ i was
+my tints by hand to celebrate 
 
-KIDNAPPED.⠀actually WHO ARE U GUYS
+800 followers! it'll be released
 
-#### [@Constrz](https://github.com/constrz)⠀⠀ [@moonlover](https://github.com/moonlover)⠀⠀ [@sugarsite](https://github.com/sugarsite)
+this week or the next.. hopefully
