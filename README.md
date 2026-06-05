@@ -6,10 +6,8 @@
 
 <img src=https://i.postimg.cc/hG2wnJ9t/Screenshot-20260602-184421-Pony-Town.jpg width="260" height="260">
 
-Making a little tut on how i do
+Making a little tut on how i do my tints
 
-my tints by hand to celebrate 
+by hand to celebrate  800 followers! it'll
 
-800 followers! it'll be released
-
-this week or the next.. hopefully
+be released this week or the next.. maybe
