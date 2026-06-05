@@ -8,6 +8,6 @@
 
 #### Making  a  little  tut  on  how  i  do  my  tints
 
-#### by  hand  to  celebrate  800 followers.  it'll
+#### by  hand  to  celebrate  800 followers.    it'll
 
 #### be released this week or the next..  maybe
