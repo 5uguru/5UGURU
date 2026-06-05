@@ -10,4 +10,4 @@
 
 #### by  hand  to  celebrate  800 followers.    it'll
 
-#### be released this week or the next..  maybe
+#### be released this week or the next.. maybe
