@@ -12,4 +12,4 @@
 
 #### be released this week or the next.. maybe
 
-#### hey im back with the [tint by hand guide](https://rentry.co/tints)
+#### hey im back with the [TINT BY HAND GUIDE](https://rentry.co/tints)
