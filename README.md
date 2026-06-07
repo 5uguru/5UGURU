@@ -11,3 +11,5 @@
 #### by  hand  to  celebrate  800 followers.    it'll
 
 #### be released this week or the next.. maybe
+
+#### hey im back with the [tint by hand guide](https://rentry.co/tints)
