@@ -8,6 +8,6 @@
 
 #### 800 followers... ⠀⠀     [TINT BY HAND GUIDE](https://rentry.co/tints)
 
-#### I watch bullshit and listen to songs
+#### I watch bullshit and listen to songs all day
 
 #### You up to hyperbeam?
