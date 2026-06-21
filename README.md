@@ -11,3 +11,5 @@
 #### I  watch  bullshit  and  listen  to   🎵    all  day
 
 #### [@AnhaaLyz](https://github.com/anhaalyz) ⠀ ⠀ Boy you up to hyperbeam?
+
+#### My gut gnawers. I love you [nik](https://github.com/moonioverr) [mina](https://github.com/seraphoria)
