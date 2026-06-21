@@ -6,10 +6,8 @@
 
 <img src=https://i.postimg.cc/hG2wnJ9t/Screenshot-20260602-184421-Pony-Town.jpg width="260" height="260">
 
-#### Making  a  little  tut  on  how  i  do  my  tints
+#### 800 followers... ⠀⠀     [TINT BY HAND GUIDE](https://rentry.co/tints)
 
-#### by  hand  to  celebrate  800 followers.    it'll
+#### I watch bullshit and listen to songs
 
-#### be released this week or the next.. maybe
-
-#### hey im back... ⠀⠀     [TINT BY HAND GUIDE](https://rentry.co/tints)
+#### You up to hyperbeam?
