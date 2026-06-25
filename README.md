@@ -14,9 +14,9 @@
   <br>
     .   ⑅ ⠀ ͏   ⠀⠀ ͏<a href="https://github.com/anhaalyz">minho</a> ⠀  ͏    ⠀ ͏变态<br>
      ⠀ ͏<br>
-    <img src="https://i.postimg.cc/LsmFf45T/Untitled76-20260625231239.png" alt="Pen" width="145" height="30">      ॰ ˳ཻ<br>
-    ｡ʕ ฅ ฅ ʔﾟ｡ ⠀⠀<img src="https://i.postimg.cc/B66WYhxC/Untitled76-20260625231253.png" alt="Pen" width="100" height="30"><br>
-    <img src="https://i.postimg.cc/90R6Vrgc/Untitled76-20260625231305.png" alt="Pen" width="125" height="30"> ͏ ⠀ ͏𓏸ྀི݂ ◛<br>
+    <a href="https://rentry.co/megz"><img src="https://i.postimg.cc/LsmFf45T/Untitled76-20260625231239.png" alt="Pen" width="145" height="30"></a>      ॰ ˳ཻ<br>
+    ｡ʕ ฅ ฅ ʔﾟ｡ ⠀⠀<a href="https://rentry.co/wonrina"><img src="https://i.postimg.cc/B66WYhxC/Untitled76-20260625231253.png" alt="Pen" width="100" height="30"></a><br>
+    <a href="https://rentry.co/wonrina"><img src="https://i.postimg.cc/90R6Vrgc/Untitled76-20260625231305.png" alt="Pen" width="125" height="30"></a> ͏ ⠀ ͏𓏸ྀི݂ ◛<br>
   </div>
 </td>
 </tr>
