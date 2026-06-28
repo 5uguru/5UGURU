@@ -41,7 +41,7 @@ ignore this. is for tama
 
 <td style="vertical-align: top;">
   <div class="message">
-    ͏ 𓈒 ⑅ ݄ <img src="https://i.postimg.cc/zX2ntpYr/Untitled76-20260628232132.png" alt="Pen" width="60" height="20">
+   ⑅ ݄ <img src="https://i.postimg.cc/zX2ntpYr/Untitled76-20260628232132.png" alt="Pen" width="60" height="20">
   </div>
 </td>
 </tr>
