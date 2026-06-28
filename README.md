@@ -41,10 +41,12 @@ ignore this. is for tama
 
 <td style="vertical-align: top;">
   <div class="message">
-   ⑅ ݄ <img src="https://i.postimg.cc/zX2ntpYr/Untitled76-20260628232132.png" alt="Pen" width="60" height="20">
+   ⑅ ݄ <img src="https://i.postimg.cc/zX2ntpYr/Untitled76-20260628232132.png" alt="Pen" width="60" height="20"> <br>
+   or⠀  ⠀みお <br>
+   <img src="https://i.postimg.cc/2SPnm66f/Untitled76-20260628232319.png" alt="Pen" width="25" height="20">⠀(· ᴗ̵ ‹ 
   </div>
 </td>
 </tr>
 </table>
 
-<img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-2dea566eef7fb5ad.gif" width="280" height="50" alt="Description">
+<img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-2dea566eef7fb5ad.gif" width="283" height="50" alt="Description">
