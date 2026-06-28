@@ -33,6 +33,8 @@
 
 ignore this. is for tama
 
+<div id="text" align="center">
+ 
 <table>
 <tr>
 <td style="vertical-align: top;">
@@ -47,10 +49,12 @@ ignore this. is for tama
    <a href="https://github.com/htrbi">ace</a>  𓏼ᩙ  <a href="https://github.com/5uguru">megz</a> <br>
    ໒༷⠀⠀   <a href="https://github.com/ivancest">shiyu</a> <br>
    ⠀⠀ᯠꗯᯄ <br>
-   <a href="https://rentry.co/megz"><img src="https://i.postimg.cc/3wmmwT4v/Untitled76-20260628232040.png" alt="Pen" width="40" height="20"></a>  ⠀𓈒ֵ۫  ᕠ
+   <a href="https://burger.atabook.org/"><img src="https://i.postimg.cc/3wmmwT4v/Untitled76-20260628232040.png" alt="Pen" width="40" height="20"></a>  ⠀𓈒ֵ۫  ᕠ
   </div>
 </td>
 </tr>
 </table>
 
 <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-2dea566eef7fb5ad.gif" width="287" height="52" alt="Description">
+
+@5uguru made it hi 
