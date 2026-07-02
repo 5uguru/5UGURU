@@ -57,7 +57,7 @@ ignore this. it for ace
 <tr>
 <td style="vertical-align: top;">
 <div class="message">
-   <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled85_20260702141100.png" alt="Pen" width="45" height="20"> ⠀ 🍥᪶᪻  ⠀ ISTP ⠀ ♬ ₊̣̇.<br>
+   <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled85_20260702141100.png" alt="Pen" width="45" height="20"> ⠀🍥᪶᪻  ⠀ ISTP ⠀ ♬ ₊̣̇.<br>
    eng  ͏╱  kr  ͏╱  jp ⠀ᵒ̤̑ಣ⠀ <a href="https://github.com/tdlosk">sen</a>
 </div>
 </td>
