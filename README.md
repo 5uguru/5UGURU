@@ -43,7 +43,7 @@ i deserve no happiness i accidentally deleted hanchos codes
 
 <td style="vertical-align: top;">
   <div class="message">
-    ⁽ ⎺ ꒳ ⎺ ⁾ ⠀˖ ૮⳿ ⠀<img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled85_20260702130041.png" width="85" height="20" alt="Description"><br>
+    ⁽ ⎺ ꒳ ⎺ ⁾ ⠀˖૮⳿ ⠀<img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled85_20260702130041.png" width="85" height="20" alt="Description"><br>
    <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled85_20260702130207.png" width="30" height="20" alt="Description"> +˖ ⠀i ♡ music⠀⠀ཻ𓈒 ♪˚ ᜔
   </div>
 </td>
@@ -51,3 +51,18 @@ i deserve no happiness i accidentally deleted hanchos codes
 </table>
 
 <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled85_20260702130033.png" width="260" height="50" alt="Description"><br>
+
+<table>
+<tr>
+<td style="vertical-align: top;">
+  <div class="message">
+    <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled85_20260702141100.png" width="50" height="20" alt="Description"> ⠀🍥᪶᪻ ⠀ ISTP ⠀♬ ა₊̣̇.
+
+  </div>
+</td>
+
+<td style="vertical-align: top;">
+  <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-53ef0a8de5babc09.gif" alt="Pen" width="50" height="50">
+</td>
+</tr>
+</table>
