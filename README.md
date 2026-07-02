@@ -30,37 +30,3 @@
 </table>
 
 <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled75_20260626023257.png" width="260" height="90" alt="Description"><br>
-
-<img src="https://file.garden/aZrbmlKh3wfTGmpv/837e51b613386d90dd9c96ba6aa1acef.jpg" width="258" height="130" alt="Description">
-
-<table>
-<tr>
-<td style="vertical-align: top;">
-  <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-54186d2b26689acb.gif" alt="Pen" width="40" height="50">
-</td>
-
-<td style="vertical-align: top;">
-  <div class="message">
-    ⁽ ⎺ ꒳ ⎺ ⁾ ⠀˖૮⳿ ⠀<img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled85_20260702130041.png" width="85" height="20" alt="Description"><br>
-   <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled85_20260702130207.png" width="30" height="20" alt="Description"> +˖ ⠀i ♡ music⠀⠀ཻ𓈒 ♪˚ ᜔
-  </div>
-</td>
-</tr>
-</table>
-
-<img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled85_20260702130033.png" width="260" height="50" alt="Description"><br>
-
-<table>
-<tr>
-<td style="vertical-align: top;">
-  <div class="message">
-    <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled85_20260702141100.png" width="50" height="20" alt="Description"> ⠀🍥᪶᪻ ⠀ ISTP ⠀♬ ₊̣̇.<br>
-    eng  ͏╱  kr  ͏╱ jp ⠀ ಣ ⠀ <a href="https://github.com/tdlosk">sen</a>
-  </div>
-</td>
-
-<td style="vertical-align: top;">
-  <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-53ef0a8de5babc09.gif" alt="Pen" width="50" height="50">
-</td>
-</tr>
-</table>
