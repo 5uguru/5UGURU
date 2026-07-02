@@ -30,3 +30,24 @@
 </table>
 
 <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled75_20260626023257.png" width="260" height="90" alt="Description"><br>
+
+i deserve no happiness i accidentally deleted hanchos codes
+
+<img src="https://file.garden/aZrbmlKh3wfTGmpv/837e51b613386d90dd9c96ba6aa1acef.jpg" width="258" height="130" alt="Description">
+
+<table>
+<tr>
+<td style="vertical-align: top;">
+  <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-54186d2b26689acb.gif" alt="Pen" width="40" height="50">
+</td>
+
+<td style="vertical-align: top;">
+  <div class="message">
+    <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled85_20260702130041.png" width="85" height="20" alt="Description">
+
+  </div>
+</td>
+</tr>
+</table>
+
+<img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled85_20260702130033.png" width="260" height="50" alt="Description"><br>
