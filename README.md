@@ -34,7 +34,7 @@
 
 ignore this. it for ace
 
-<img src="https://file.garden/aZrbmlKh3wfTGmpv/837e51b613386d90dd9c96ba6aa1acef.jpg" width="260" height="120" alt="Description">
+<img src="https://file.garden/aZrbmlKh3wfTGmpv/837e51b613386d90dd9c96ba6aa1acef.jpg" width="257" height="120" alt="Description">
 
 <table>
 <tr>
@@ -44,8 +44,8 @@ ignore this. it for ace
 
 <td style="vertical-align: top;">
   <div class="message">
-    ㅍ_ㅍ) ⠀ ˖ ‎૮⳿ ⠀<img src="https://i.postimg.cc/C5MckLNj/Untitled85-20260702130041.png" alt="Pen" width="80" height="20"> <br>
-   <img src="https://i.postimg.cc/ZnfVcts4/Untitled85-20260702130207.png" alt="Pen" width="25" height="20"><br>
+    ⁽ ⎺ ꒳ ⎺ ⁾⠀ ˖ ‎૮⳿ ⠀<img src="https://i.postimg.cc/C5MckLNj/Untitled85-20260702130041.png" alt="Pen" width="80" height="20"> <br>
+   <img src="https://i.postimg.cc/ZnfVcts4/Untitled85-20260702130207.png" alt="Pen" width="25" height="20"> +˖ ⠀ ‎i ♡ music ⠀ ཻ𓈒 ♪˚ ᜔<br>
   </div>
 </td>
 </tr>
