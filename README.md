@@ -43,8 +43,8 @@ i deserve no happiness i accidentally deleted hanchos codes
 
 <td style="vertical-align: top;">
   <div class="message">
-    <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled85_20260702130041.png" width="85" height="20" alt="Description">
-
+    ⁽ ⎺ ꒳ ⎺ ⁾ ⠀˖ ૮⳿ ⠀<img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled85_20260702130041.png" width="85" height="20" alt="Description"><br>
+   <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled85_20260702130207.png" width="30" height="20" alt="Description"> +˖ ⠀i ♡ music⠀⠀ཻ𓈒 ♪˚ ᜔
   </div>
 </td>
 </tr>
