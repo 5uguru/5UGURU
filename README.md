@@ -44,13 +44,14 @@ ignore this. it for ace
 
 <td style="vertical-align: top;">
   <div class="message">
-    like ok
+    (ㅍ_ㅍ) ⠀ ˖ ‎૮⳿ ⠀<img src="https://i.postimg.cc/C5MckLNj/Untitled85-20260702130041.png" alt="Pen" width="75" height="20"> <br>
+   yo <br>
   </div>
 </td>
 </tr>
 </table>
 
-<img src="https://i.postimg.cc/gJnmYm9R/Untitled85-20260702122405.png" width="260" height="55" alt="Description">
+<img src="https://i.postimg.cc/XvF10PqC/Untitled85-20260702130033.png" width="260" height="55" alt="Description">
 
 <table>
 <tr>
