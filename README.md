@@ -56,8 +56,8 @@ i deserve no happiness i accidentally deleted hanchos codes
 <tr>
 <td style="vertical-align: top;">
   <div class="message">
-    <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled85_20260702141100.png" width="50" height="20" alt="Description"> ⠀🍥᪶᪻ ⠀ ISTP ⠀♬ ა₊̣̇.
-
+    <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled85_20260702141100.png" width="50" height="20" alt="Description"> ⠀🍥᪶᪻ ⠀ ISTP ⠀♬ ₊̣̇.<br>
+    eng  ͏╱  kr  ͏╱ jp ⠀ ಣ ⠀ <a href="https://github.com/tdlosk">sen</a>
   </div>
 </td>
 
