@@ -21,7 +21,7 @@
 
 <td style="vertical-align: top;">
   <div class="message">
-    <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled98_20260714214621.png" width="18" height="18" alt="Description"> gonna cook rq~~ <br>
+    <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled98_20260714214621.png" width="18" height="18" alt="Description"> gonna cook rq ~~ <br>
   </div>
 </td>
 </tr>
