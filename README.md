@@ -8,7 +8,7 @@
 
 <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled100_20260714214156.png" width="270" height="33" alt="Description"><br>
 
-ok <br>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Arial&size=17&duration=6000&pause=900&color=A1616D&width=195&height=30&lines=I+know+if+I'm+haunting+you;You+must+be+haunting+me" alt="Typing SVG" /></a> <br>
 
 <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-67370526d7165dd7.webp" width="270" height="180" alt="Description">
 
