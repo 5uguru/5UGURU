@@ -23,7 +23,7 @@
   <div class="message">
     ༷݁    𓎢۫𓎡    ༷݁ ˖    𓎢۫𓎡    ༷݁ <br>
     ơᴗơ) ₊̣̇ . ⠀ <a href="https://github.com/moonloverr">nikk</a> ⠀ بھائی<br>
-  <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled98_20260714214621.png" width="18" height="18" alt="Description"> 𓈒ྀ ⠀ <a href="https://github.com/red-veivet">mina</a> ⠀ಣ 兔子<br>
+  <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled98_20260714214621.png" width="18" height="18" alt="Description">    𓈒ྀ ⠀   <a href="https://github.com/red-veivet">mina</a> ⠀  兔子<br>
     <a href="https://github.com/anhaalyz">minho</a><br>
   </div>
 </td>
