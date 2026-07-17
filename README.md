@@ -22,8 +22,9 @@
 <td style="vertical-align: top;">
   <div class="message">
     ༷݁    𓎢۫𓎡    ༷݁ ˖    𓎢۫𓎡    ༷݁ <br>
-    ok <br>
-    <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled98_20260714214621.png" width="18" height="18" alt="Description"> <br>
+    ơᴗơ) ⠀ <a href="https://github.com/moonloverr">nikk</a> ⠀ 
+<br>
+  <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled98_20260714214621.png" width="18" height="18" alt="Description"> <br>
   </div>
 </td>
 </tr>
