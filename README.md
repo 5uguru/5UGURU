@@ -4,11 +4,11 @@
 
 ![](https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=000000&label=_EYES_&base=1000)
 
-#### I take readme commissions. ⠀ [Click here](https://rentry.co/skeptic)
+
 
 <img src="https://file.garden/aZrbmlKh3wfTGmpv/Untitled100_20260714214156.png" width="270" height="33" alt="Description"><br>
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Arial&size=17&duration=3000&pause=1200&color=BBA59C&width=60&height=30&lines=%2F%E1%90%A0+%E2%91%85%E3%83%9E+%E0%A9%AD" alt="Typing SVG" /></a> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Arial&size=17&duration=3000&pause=1200&color=A1616D&width=200&height=30&lines=Haters+mad+for+wtv+reason" alt="Typing SVG" /></a> <br>
+#### I take readme commissions. ⠀ [Click here](https://rentry.co/skeptic)
 
 <img src="https://file.garden/aZrbmlKh3wfTGmpv/ezgif-67370526d7165dd7.webp" width="270" height="180" alt="Description">
 
