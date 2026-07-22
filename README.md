@@ -1,6 +1,6 @@
 <div id="text" align="center">
 
-#### <img src="https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=000000&label=_EYES_&base=1000" width="105" height="25" alt="Description">⠀ ⠀ <ruby>tonight i might drink<rt>a little more than i should</rt></ruby> <br>
+ <img src="https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=000000&label=_EYES_&base=1000" width="105" height="25" alt="Description">⠀ ⠀  ⠀ <ruby>tonight i might drink<rt>a little more than i should</rt></ruby> <br>
 
 <img src="https://i.postimg.cc/XYpM2vcM/Untitled105-20260722134358.png" width="280" height="165" alt="Description"><br>
 
