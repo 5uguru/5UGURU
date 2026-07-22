@@ -1,3 +1,3 @@
 
 
-get out bro im experiment 
+get out bro im experimenting
