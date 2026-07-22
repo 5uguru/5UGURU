@@ -1,7 +1,5 @@
 <div id="text" align="center">
 
-Tonight I might drink a little more than I should
-
 #### <img src="https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=000000&label=_EYES_&base=1000" width="110" height="23" alt="Description">⠀ ⠀ ⠀ <code>Sign</code> my ${\color{#A9A9A9}ata}$ + ${\color{#A9A9A9}straw}$
 
 #### ${\color{#767676}Kyuties}$ ⠀ ⠀<code>✞ ‿ ۪</code> ۫ ⠀ ⠀<a href="https://github.com/moonloverr">Niki</a>  ⠀ <a href="https://github.com/red-veivet">Minarin</a> ⠀ <a href="https://github.com/anhaalyz">Minho</a>
@@ -13,5 +11,3 @@ Tonight I might drink a little more than I should
 <a href="https://rentry.co/megz"><img src="https://i.postimg.cc/k5HNKKWF/Untitled106-20260722144329.png" width="139" height="25" alt="Description"></a>⠀⠀ <a href="https://rentry.co/skeptic"><img src="https://i.postimg.cc/ZKzcw82X/Untitled106-20260722144318.png" width="119" height="25" alt="Description"></a>
 
 <a href="https://rentry.co/tints"><img src="https://i.postimg.cc/NMr64F4L/Untitled106-20260722144339.png" width="114" height="25" alt="Description"></a>⠀⠀⠀⠀<a href="https://rentry.co/wonrina"><img src="https://i.postimg.cc/d32Gbfpf/Untitled106-20260722144347.png" width="124" height="25" alt="Description"></a>
-
-2night I might take you home with me if I could
