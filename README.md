@@ -8,6 +8,6 @@
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Arial&size=18&duration=1900&pause=900&color=767676&width=150&height=27&lines=I+%E2%80%86don't+%E2%80%86wanna+%E2%80%86talk;If+you're+not+gonna;Talk+to+me+nice%E2%A0%80+%3A%2F" alt="Typing SVG" /></a>    ⠀    ⠀⠀⠀<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Arial&size=18&duration=1900&pause=900&color=A9A9A9&width=77&height=27&lines=(+%E2%80%A2%CC%A5+%C2%B7%CC%AB+%E2%80%A2%CC%A5+)%E2%A0%80+%CD%8F%E0%A6%93" alt="Typing SVG" /></a>
 
-<a href="https://rentry.co/megz">![](https://i.postimg.cc/L6RwvZrW/Untitled106-20260722234225.png)</a> ⠀ ⠀⠀ <a href="https://rentry.co/skeptic">![](https://i.postimg.cc/W3GSJ5bt/Untitled106-20260722234147.png)</a>  
+<a href="https://rentry.co/megz">![](https://i.postimg.cc/Y21qhY6s/Untitled110-20260722235828.png)</a> ⠀ ⠀⠀ <a href="https://rentry.co/skeptic">![](https://i.postimg.cc/vHb89TXb/Untitled109-20260722235755.png)</a>  
 
-<a href="https://rentry.co/tints">![](https://i.postimg.cc/SQGDS1v1/Untitled106-20260722234254.png)</a> ⠀⠀ ⠀⠀⠀⠀ <a href="https://rentry.co/wonrina">![](https://i.postimg.cc/7ZjNsF5y/Untitled106-20260722234247.png)</a>  
+<a href="https://rentry.co/tints">![](https://i.postimg.cc/KvfG5bsj/Untitled112-20260722235951.png)</a> ⠀⠀ ⠀⠀⠀⠀ <a href="https://rentry.co/wonrina">![](https://i.postimg.cc/MK56Ywr0/Untitled111-20260722235921.png)</a>  
