@@ -1,8 +1,8 @@
 <div id="text" align="center">
 
-#### <img src="https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=000000&label=_EYES_&base=1000" width="110" height="23" alt="Description">⠀ ⠀ ⠀ <code>Sign</code> my ${\color{#A9A9A9}ata}$ + ${\color{#A9A9A9}straw}$
+#### <img src="https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=000000&label=_EYES_&base=1000" width="110" height="23" alt="Description">⠀ ⠀<code>Sign</code> my ${\color{#A9A9A9}ata}$ + ${\color{#A9A9A9}straw}$
 
-#### ${\color{#767676}Kyuties}$ ⠀ ⠀<code>✞ ‿ ۪</code> ۫ ⠀ ⠀<a href="https://github.com/moonloverr">Niki</a>  ⠀ <a href="https://github.com/red-veivet">Minarin</a> ⠀ <a href="https://github.com/anhaalyz">Minho</a>
+#### ${\color{#767676}Kyuties}$⠀⠀<code>✞ ‿ ۪</code> ۫⠀ ⠀<a href="https://github.com/moonloverr">Niki</a>  ⠀ <a href="https://github.com/red-veivet">Minarin</a> ⠀ <a href="https://github.com/anhaalyz">Minho</a>
 
 <img src="https://i.postimg.cc/DZJL5HBP/Untitled105-20260722141209.png" width="280" height="165" alt="Description"><br>
 
