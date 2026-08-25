@@ -1,5 +1,8 @@
 <div id="text" align="center">
 
+forgetting my day ones the SECOND
+i hit 1k
+
 #### <img src="https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=000000&label=_EYES_&base=1000" width="98" height="19" alt="Description">⠀  ⠀ ⠀<code>Sign</code>   my   ata + straw
 
 #### ${\color{#a9a9a9}Kyuties}$⠀⠀<code>✞ ‿ ۪</code> ۫⠀ ⠀<a href="https://github.com/moonloverr">Niki</a>  ⠀ <a href="https://github.com/red-veivet">Minarin</a> ⠀ <a href="https://github.com/anhaalyz">Minho</a>
