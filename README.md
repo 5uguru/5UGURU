@@ -1,6 +1,6 @@
 <div id="text" align="center">
 
-forgetting my day ones the SECOND
+forgetting my day ones the !SECOND¡
 i hit 1k
 
 #### <img src="https://komarev.com/ghpvc/?username=destroy-boys&style=plastic&color=000000&label=_EYES_&base=1000" width="98" height="19" alt="Description">⠀  ⠀ ⠀<code>Sign</code>   my   ata + straw
