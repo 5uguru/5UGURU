@@ -13,3 +13,16 @@ the boys , ⠀the girls , ⠀they all like   ${\color{#a9a9a9}carmen}$ �
 <a href="https://rentry.co/megz">![](https://i.postimg.cc/Y21qhY6s/Untitled110-20260722235828.png)</a> ⠀ ⠀⠀ <a href="https://rentry.co/skeptic">![](https://i.postimg.cc/vHb89TXb/Untitled109-20260722235755.png)</a>  
 
 <a href="https://rentry.co/tints">![](https://i.postimg.cc/KvfG5bsj/Untitled112-20260722235951.png)</a> ⠀⠀ ⠀⠀⠀⠀ <a href="https://rentry.co/wonrina">![](https://i.postimg.cc/MK56Ywr0/Untitled111-20260722235921.png)</a>  
+
+⠀<br>
+⠀<br>
+⠀<br>
+⠀<br>
+
+<table>
+	<tbody>
+		<tr>
+			<td>to all the women who wanna celebrate me <br> hitting 1k my discord is idolify ♥️ many of u <br> thanked me real nice for that hand tint guide. <br> ill be looking forward 2 da celebratory dms... <br> 🐶 bro i told the men that i have an ata last <br> time. anyways im so happy thank u guys 😳 </td>
+		</tr>
+	</tbody>
+</table>
