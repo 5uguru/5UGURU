@@ -22,7 +22,7 @@ the boys , ⠀the girls , ⠀they all like   ${\color{#a9a9a9}carmen}$ �
 <table>
 	<tbody>
 		<tr>
-			<td> <a href="https://github.com/shokosclinic">my 1000th follower</a> 🌟 </td>
+			<td> <a href="https://github.com/shokosclinic">my 1000th follower</a> 🌟 👀</td>
 		</tr>
 	</tbody>
 </table> 
