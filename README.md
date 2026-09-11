@@ -32,5 +32,5 @@ the boys , ⠀the girls , ⠀they all like   ${\color{#a9a9a9}carmen}$ �
 		<tr>
 			<td>to all the women who wanna celebrate me <br> hitting 1k my discord is idolify ♥️ many of u <br> thanked me real nice for that hand tint guide. <br> ill be looking forward 2 da celebratory dms... <br> 🐶 bro i told the men that i have an ata last <br> time. anyways im so happy thank u guys 😳 </td>
 		</tr>
-	</tbody>👀
+	</tbody>
 </table>
