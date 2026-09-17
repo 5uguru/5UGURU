@@ -13,3 +13,9 @@ the boys , ⠀the girls , ⠀they all like   ${\color{#a9a9a9}carmen}$ �
 <a href="https://rentry.co/megz">![](https://i.postimg.cc/Y21qhY6s/Untitled110-20260722235828.png)</a> ⠀ ⠀⠀ <a href="https://rentry.co/skeptic">![](https://i.postimg.cc/vHb89TXb/Untitled109-20260722235755.png)</a>  
 
 <a href="https://rentry.co/tints">![](https://i.postimg.cc/KvfG5bsj/Untitled112-20260722235951.png)</a> ⠀⠀ ⠀⠀⠀⠀ <a href="https://rentry.co/wonrina">![](https://i.postimg.cc/MK56Ywr0/Untitled111-20260722235921.png)</a>  
+
+<br>
+<br>
+<br>
+
+<img src="https://file.garden/aZrbmlKh3wfTGmpv/Screenshot_20260917_174811_Chrome.jpg" width="280" height="80" alt="Description"><br>
