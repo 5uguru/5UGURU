@@ -1,3 +1,8 @@
+i finally logged into this account bro <br>
+i had such a nice idea for my github readme on a random thursday midnight <br>
+^ (i was giggling to myself like crazy.) ts will take weeks 😪 <br>
+AND YES its gonna be a black and white theme again. with rezedenji
+
 <div id="text" align="center">
 
 the boys , ⠀the girls , ⠀they all like   ${\color{#a9a9a9}carmen}$ ♡
