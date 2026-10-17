@@ -15,6 +15,6 @@ on making another readme de- <br>
 ia on every site except discord <br>
   (@idolify) and insta. add me 2 <br>
   talk~ ⠀i get bored really easily <br>
-  without new friends  -_- ⠀ read <br>
+  without new friends  -_- ⠀  read <br>
   my⠀ <a href="https://rentry.co/catboys"> byi rentry </a> ⠀first doe 
 </td></tr></table>
